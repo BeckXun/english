@@ -38,3 +38,16 @@
 - tower over 超越，高出
 - ten-hut 全体注意（军队中的口令）
 - police force 警队
+
+#### 10-23
+
+- climb into 爬进
+- run out of 用尽
+- dash over 猛冲过去
+- dozens of 许多
+- hit the road 走开
+- pull up 拉过来，移进
+- march up 往上方走
+- let sb. off 放过某人，从轻发落
+- bent down 弯腰
+- look down upon sb. 看不起某人
